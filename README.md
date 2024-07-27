@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Amit-2013
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on Nothing.
+- 📫 How to reach me No
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i know everything.
